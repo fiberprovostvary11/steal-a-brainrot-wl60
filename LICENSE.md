@@ -1,4 +1,4 @@
-
+steal a brainrot best Scripts offers the most advanced steal a brainrot Script, with one-hit kill and auto-farm. Perfect for dominating any match.
 
 
 
